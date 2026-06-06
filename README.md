@@ -1,5 +1,5 @@
 <div align="center"/>
-<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/Sage%20Rentry/Sagegraphic.gif"/> <br><br>
+<img src="https://file.garden/ZiyMFQQoJTlsDCta/graphics/sagechibiatabook.png"/> <br><br>
   
 
  <br>sage or seven<br> he/they (or i refer to myself as we/us) <br><br> shamilk + his skins ID <br> dont hesitate to int and/or c+h<br>
